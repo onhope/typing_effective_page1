@@ -1,0 +1,1 @@
+# typing_effective_page1
